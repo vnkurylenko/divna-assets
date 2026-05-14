@@ -1,0 +1,1 @@
+# divna-assets
